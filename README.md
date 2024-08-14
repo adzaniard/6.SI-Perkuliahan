@@ -1,1 +1,1 @@
-# 6.-SI---Perkuliahan
+# 6.SI-Perkuliahan
